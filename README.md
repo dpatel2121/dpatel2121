@@ -1,5 +1,5 @@
 # 👋🏽 Hi I'm Deep!
-🌱 I’m currently learning to master SQL and Website Designing.<br>💬 Ask me about Business Strategy, Business Process Models, Data Analytics, KPI Dashboards, Storytelling through data<br>📫 How to reach me pdeep080@gmail.com<br>📄 Know about my experiences https://drive.google.com/file/d/16lHEaP4Bo0Ktvnb16FaBR9rwnFrqwSrS/view?usp=sharing<br>⚡ Fun fact I like cooking different cuisine every weekend
+🌱 I’m currently learning to master SQL and Website Designing.<br>💬 Ask me about Business Strategy, Business Process Models, Data Analytics, KPI Dashboards, Storytelling through data<br>📫 How to reach me pdeep080@gmail.com<br>📄 Know about my experiences https://drive.google.com/file/d/16lHEaP4Bo0Ktvnb16FaBR9rwnFrqwSrS/view?usp=sharing<br>⚡ Fun fact I like to cook different cuisine every weekend
 
 
 ## 🌐 Socials:
